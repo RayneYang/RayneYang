@@ -1,7 +1,7 @@
 - 💁🏼‍♀️ Hi, I’m @RayneYang
 - 🥰 I’m interested in data science, autonomous driving, econmetrics analysis, cryptocurrency, JJ Lin💕
 - 🌱 I’m currently learning spillover effects，quantitative investment management
-- 💞️ I’m looking to collaborate on 
+- 💞 I’m looking to get a phd offer in data science🇸🇬 
 - 📫 How to reach me scuyangrong@126.com
 
 <!---
